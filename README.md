@@ -1,2 +1,2 @@
 # Hypnodrug-
- hypno bodybuilding muscle gowth
+ hypno bodybuilding muscle growth
